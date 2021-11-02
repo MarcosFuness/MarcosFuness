@@ -5,6 +5,6 @@
 - de mi - : este año 2021 decidí cambaiar mis metas, dar un giro de 180° en mi carrera profesional y aqui voy,
   dando todo para lograrlo... ¡ obtener mi primer empleo IT !
 - QUERES CONOCERME MAS ? te dejo mi linkedln : https://www.linkedin.com/in/marcos-funes2021/
-                         mi correo : oscarmarcos234@hotmail.com
+ -                       mi correo : oscarmarcos234@hotmail.com
   
   NOS VEMOS EN EL VIAJE..!
